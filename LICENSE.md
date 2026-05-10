@@ -1,4 +1,4 @@
-
+stealth Scripts for oil empire offers the most advanced oil empire Script, with one-hit kill and speed. Perfect for dominating any match.
 
 
 
